@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning how to life
 - 💞️ I’m looking to collaborate on hereafter
-- 📫 How to reach me ig.com/furime01
+- 📫 How to reach me ig.me/furime01
 - Do not hope it will be Special
 
 <!---
