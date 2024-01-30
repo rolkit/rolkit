@@ -2,7 +2,8 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning how to life
 - 💞️ I’m looking to collaborate on hereafter
-- 📫 How to reach me ...
+- 📫 How to reach me ig.com/furime01
+- Do not hope it will be Special
 
 <!---
 rolkit/rolkit is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
