@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rolkit
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning how to life
+- 🌱 I’m currently learning how to life each other
 - 💞️ I’m looking to collaborate on hereafter
 - 📫 How to reach me ig.me/furime01
 - Do not hope it will be Special
