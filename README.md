@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to life each other
 - 💞️ I’m looking to collaborate on hereafter
 - 📫 How to reach me ig.me/furime01
-- Do not hope it will bre Special
+- Do not hope it will be Special
 - 38 means i love Allah for infinite
 
 <!---
