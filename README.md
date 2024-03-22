@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning how to life each other
 - 💞️ I’m looking to collaborate on hereafter
-- 📫 How to reach me ig.me/furime01
+- 📫 How to reach me '-'
 - Do not hope it will be Special
 - roll number 38 means i love Allah for infinity
 
