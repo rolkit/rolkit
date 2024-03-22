@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rolkit
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning how to life each other
+- 🌱 I’m currently learning how to always remember Allah and prophet Muhammad and life each other 
 - 💞️ I’m looking to collaborate on hereafter
 - 📫 How to reach me '-'
 - Do not hope it will be Special
