@@ -1,11 +1,6 @@
 - 👋 Hi, I’m @rolkit
-- 👀 I’m interested in programming
-- 🌱 I’m currently learning how to always remember Allah and prophet Muhammad and life each other 
-- 💞️ I’m looking to collaborate on hereafter
-- 📫 How to reach me '-'
-- Do not hope it will be Special
-- roll number 38 means i love Allah for infinity
-- servant of Allah
+- 👀 I’m interested in programming and coding
+
 
 <!---
 rolkit/rolkit is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
